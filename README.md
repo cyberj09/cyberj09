@@ -31,4 +31,4 @@ Tracking all my completed labs with notes, screenshots, and reports.
 
 ## Contact
 Email: imjunaid52@gmail.com  
-LinkedIn: [linkedin.com/in/mohammed-junaid](https://linkedin.com/in/mohammed-junaid)
+LinkedIn: www.linkedin.com/in/mohammed-junaid-837b89316
